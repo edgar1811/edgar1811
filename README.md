@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @edgar1811
-- 👀 I’m interested in bring equality to the world("not on genders matters")
+- 👀 I’m interested in bring reality to the world
 - 🌱 I’m currently learning progaraming
 - 💞️ I’m looking to collaborate on programing and developing projects
 - 📫 How to reach me Kawicheedgar@gmail.com 
